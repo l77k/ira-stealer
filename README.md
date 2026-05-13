@@ -1,1 +1,1 @@
-bunu cozmek icin biraz gec kaldım sanirim
+bekle o smp.jarınıda cozecegim oglum 100 tane dosyani sikeyim senin:!
